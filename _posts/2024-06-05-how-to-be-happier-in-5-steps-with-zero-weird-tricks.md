@@ -1,5 +1,5 @@
 ---
-title: What to do if your inner voice is cruel
+title: How to be happier in 5 steps with zero weird tricks
 date: 2024-06-05 00:00:00 +0800
 categories: [Beter Self]
 tags: [Life]
